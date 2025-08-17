@@ -13,7 +13,8 @@ The project showcases branding, packaging, and digital design work prepared duri
 ---
 
 ## 🖼️ Preview of Work
-Below are previews of selected work.  
+Below are previews of selected work.  ![Uploading Untitled-1-01.png…]()
+
 (Click on the images to view in full size.)
 
 ### Logo Design
